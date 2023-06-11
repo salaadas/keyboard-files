@@ -1,4 +1,4 @@
-hhkb hg side. very polarizing.
+hhkb hg side, chonky weight, nice mounting. very polarizing.
 
 see for yourself.
 
